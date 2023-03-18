@@ -16,7 +16,7 @@
 - 🤔 I’m looking for help with Design Pattern 😭
 - 💬 Ask me about anything, I am happy to help
 - ⚡️ Fun-Fact: I am very embarrassed when talking face to face
-- 📫 How to reach me: faridsyahrudin174@gmail.com
+- 📫 How to reach me: Singgihdwibudiarto27@gmail.com
 
 **Languages and Tools:**
 
